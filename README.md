@@ -31,7 +31,7 @@ depth spelunking and PMM (Pupi Midnight Munchies) </div>
 <p align="center"> <a href=https://fish-aero.straw.page>strawpage</a> | 💤 |
 <a href=https://fishpaler.atabook.org/>Atabook</a> | 💤 | 
 <a href= https://pronouns.cc/@Fishpaler>prns.cc</a> | 💤 |
-<a href= https://wonderdream404.straw.page>wondream404 straw wiki</a>
+uu wip
                                                                  
 </p>
 
