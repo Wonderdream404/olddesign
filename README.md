@@ -14,7 +14,10 @@ $\color{#fff9a8}{\text{ 💤 . blub blub my name is fishy or wonder! coding is m
 💤 . ʚෆɞ I'm making my oc!! call me <ins>**wonderdream or fishpaler**</ins>^_^
 
 💤 . I cannot read extreme typing quirck it's so hard to read it broo
+
  ʚ💤✉️ɞ I have problem with my mental health and laziness. always bedrotting 😭 like omfg 😭
+
+ ʚɞ . ocs request is closed so don't Gave me your damn ocs. (if you want to know about it just check info in my strawpage) 
 
 <div align=center> 𓏲. ʚ hyperfixation fandoms ɞ : <br>
 
@@ -40,5 +43,7 @@ depth spelunking and PMM (Pupi Midnight Munchies) </div>
 
 <ins>**BYF**</ins>
 > I have did system and ADHD . I'm a dry text so I'm very apologize. 😭
+> I have problem with my mental and has issued with my emotions irl. because I'm being so Sensitive to something
+> before you interact me ✉️ I have problem with my spelling or grammar because I **ENGLISH IS NOT MY FIRST LANGUAGE** 
 
 <p align=center><img src=https://files.catbox.moe/opbhey.png width="900" height="200"/> </p>
