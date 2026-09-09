@@ -12,6 +12,7 @@ $\color{#fff9a8}{\text{ 💤 . blub blub my name is fishy or wonder! coding is m
 𓆩💤 . ✦ "Dry text" ^_^ . english is not my first language so there's might be a mistake𓏲 . 💤𓆪
 
 💤 . ʚෆɞ I'm making my oc!! call me <ins>**wonderdream or fishpaler**</ins>^_^
+
 💤 . I cannot read extreme typing quirck it's so hard to read it broo
  ʚ💤✉️ɞ I have problem with my mental health and laziness. always bedrotting 😭 like omfg 😭
 
