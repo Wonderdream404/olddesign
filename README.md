@@ -2,6 +2,8 @@
 
 <p align=Center><img src="https://files.catbox.moe/8hk4t1.gif" width="500" height="500"/> </p>
 
+<P align=Center> <a href="https://hits.sh/github.com/Wonderdream404/"><img alt="Hits" src="https://hits.sh/github.com/Wonderdream404.svg?style=plastic&label=Mantis&color=ed9ee1&labelColor=f3eb77"/></a>
+
 <p align=center>$\color{#ff94db}{\text{"orchid mantis is the bestest ive ever seen. "}}$</p>
 
 $\color{#fff9a8}{\text{ 💤 . blub blub my name is fishy or wonder! coding is my favorite but struggle lmao }}$
