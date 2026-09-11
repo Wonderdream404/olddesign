@@ -23,7 +23,7 @@ $\color{#fff9a8}{\text{ 💤 . blub blub my name is fishy or wonder! coding is m
 
 <div align=center> 𓏲. ʚ hyperfixation fandoms ɞ : <br>
 
-depth spelunking and PMM (Pupi Midnight Munchies) </div>
+depth spelunking , PMM (Pupi Midnight Munchies), and confinement (the three of the fandoms) Is roblox fandom</div>
 <Details><summary> silly </summary> 
 
   * wonderdream404
